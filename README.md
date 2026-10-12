@@ -8,4 +8,4 @@ From the encouragement of the great minds that formed this platform, I am alread
 
 Once again, THANK YOU Odin for making me feel as is I have a direction and the encouragement to do just the best of myself in my own way!
 
-I truely appreciate this 
+I truly appreciate this 
